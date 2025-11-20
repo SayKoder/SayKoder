@@ -1,5 +1,5 @@
 # 💫 About Me:
-J'ai 20 ans<br>🏫 Étudiant de troisième année en BUT des Métiers du Multimédias et de l'Internet à Troyes.
+J'ai 22 ans<br>🏫 Étudiant en bac +4 à l'ESGI à Reims.
 
 
 ## 🌐 Socials:
